@@ -5,6 +5,7 @@ Geography and Planning Student and Research Assistant
 Department of Geography and Planning, Appalachian State University, Boone, North Carolina, USA
 
 krellaw@appstate.edu
+https://www.linkedin.com/in/abe-krell-13a689203/
 
 Summary
 ---
